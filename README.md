@@ -1,5 +1,5 @@
 # GRIM REAPER
-**`GrimReaper1337` | 0xMORDEKAI**
+**`GrimReaper1337` | 0xMORDEKAI AKA Guccifer**
 
 > "Every system has a weakness. Every secret leaves a trace."
 
@@ -40,6 +40,6 @@ If revenge brought you here, understand one thing: evidence is more powerful tha
 
 Rumors speak of a name buried in the darker corners of the web.
 
-**`0xMORDEKAI`**
+**`0xMORDEKAI AKA Guccifer`**
 
 Not a promise. Not an invitation. Just a name.
