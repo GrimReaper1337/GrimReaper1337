@@ -43,13 +43,3 @@ Rumors speak of a name buried in the darker corners of the web.
 **`0xMORDEKAI`**
 
 Not a promise. Not an invitation. Just a name.
-
----
-
-`[ STATUS: UNKNOWN ]`
-
-`[ IDENTITY: REDACTED ]`
-
-`[ TRUST NO SYSTEM. VERIFY EVERYTHING. ]`
-
-**You don't need to see the Reaper to know he was there.**
